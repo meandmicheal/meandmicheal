@@ -1,2 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/9e41f130-9563-477b-9f25-8173d7e8eead) ㅤㅤㅤmills ꜝꜝㅤ𓂅ㅤI ‹𝟹 fall.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="735" height="580" alt="image" src="https://github.com/user-attachments/assets/2f96f274-6567-424a-98f0-4707c25cafdb" />
+ ㅤㅤㅤmills ꜝꜝㅤ𓂅ㅤI ‹𝟹 fall.
 
+Future actor for Netflix & artist.
