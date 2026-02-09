@@ -1,6 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="735" height="580" alt="image" src="https://github.com/user-attachments/assets/3299fc6f-312a-41eb-b506-95de75f9c59f" />
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmills ꜝꜝㅤ𓂅ㅤmillieㅤㅤ|ㅤㅤISFJ / INFP
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmills ꜝꜝㅤ𓂅ㅤmillieㅤㅤ|ㅤㅤISFJ / INFP
 
 ㅤFuture actor for Netflix & possible artist / art teacher. I am currently a content creator with a bit over 60k followers, but im staying anonymous because I want to be known as myself.
 
