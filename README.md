@@ -6,4 +6,4 @@
 
 ㅤIm mostly online from 3:30pm EST to 8:30pm EST, if on weekends in US. time I will be on a LOT, lmao. I also might be getting supporter, so I may possibly be on all day/night if I get it.
 
-Fandoms, things about me, and other things are on my strawpage, please check it out. Also, if in need of names to call me, look on my pronouns.cc. I also drm what you refer to me as, all prns are fine except for it.
+Fandoms, things about me, and other things are on my strawpage, please check it out. Also, if in need of names to call me, look on my pronouns.cc. I also drm what you refer to me as, all prns are fine except for 'it.'
