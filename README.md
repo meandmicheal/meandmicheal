@@ -1,5 +1,6 @@
  <div align="center">
-  mills ꜝꜝㅤ𓂅ㅤmillieㅤㅤ|ㅤㅤISFJ / INFP
+  ![Screenshot_20250923-002145_Discord](https://github.com/user-attachments/assets/a20a02f5-3300-468a-8909-92d294c83bdf)
+mills ꜝꜝㅤ𓂅ㅤmillieㅤㅤ|ㅤㅤISFJ / INFP
 
 ㅤFuture actor for Netflix & possible artist / art teacher. I am currently a content creator with a bit over 60k followers, but im staying anonymous because I want to be known as myself.
 
