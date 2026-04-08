@@ -1,4 +1,5 @@
  <div align="center">
- 
-  ![Screenshot_20250923-002145_Discord](https://github.com/user-attachments/assets/a20a02f5-3300-468a-8909-92d294c83bdf)
+I love my f/o ^_^
+
+  ![Image](https://github.com/user-attachments/assets/94aac991-2805-4eeb-bd52-640b827863e4)
 ISFJ / INFP
