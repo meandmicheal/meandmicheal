@@ -3,4 +3,4 @@
 
  <div align="center">  ISFJ / INFP
 
-[guns](https://guns.lol/witchinghr)     [guns 2](https://guns.lol/schnipperschnapp)     [rx2](https://rentry.org/diaryofbella)
+[guns](https://guns.lol/witchinghr)     [guns 2](https://guns.lol/wenciair)     [rx2](https://rentry.org/diaryofbella)
